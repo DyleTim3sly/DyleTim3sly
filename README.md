@@ -1,6 +1,6 @@
 ## Hello hey!!
 
-this is one of Dev's account, which is my main above in my bio!!! I'm an artist and i draw for a living
+this is one of Dev's account,my main is above in my bio!!! I'm an artist and i draw for a living
 
 # <p align="center"> not a system!!!
 </p>
